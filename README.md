@@ -16,7 +16,7 @@ Welcome to my corner of the codeverse! 🚀
 
 #### Let's Connect
 
-📷 [Instagram](https://instagram.com/yourhandle)
+📷 [Instagram](https://instagram.com/yourhandle) | 🖇️ [LinkedIn](www.linkedin.com/in/kushal-nagarajan-41383a1a0) 
 
 #### Fun Fact
 
